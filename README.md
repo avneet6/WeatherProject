@@ -53,7 +53,8 @@
 
 7. OUTPUT:
    
-   
+   ![Image](https://github.com/user-attachments/assets/960d83d9-98a7-4891-9eb5-846eac8701cd)
+![Image](https://github.com/user-attachments/assets/5ebf0031-3bca-4a7c-8709-fb89c5b0d314)
    
    
    
